@@ -1,5 +1,6 @@
-Survey True là một sản phẩm nghiên cứu thị trường của Mibrand Vietnam. Survey True không những là nền tảng khảo sát trực tuyến, tìm kiếm đáp viên, thu thập dữ liệu theo thời gian thực (real-time) nhằm giúp các doanh nghiệp có đầy đủ căn cứ để đưa ra quyết định kinh doanh mà còn là nơi bảo vệ quyền lợi của người tiêu dùng Việt Nam thông qua các ý kiến đóng góp & đánh giá của họ về các doanh nghiệp trên thị trường. Trong hơn 8 năm qua, Survey True đã áp dụng các nền tảng công nghệ hiện đại & phương pháp nghiên cứu thị trường tiêu chuẩn quốc tế để cung cấp dữ liệu nghiên cứu một cách chính xác, tin cậy & sâu sắc nhất về khách hàng cho hàng trăm doanh nghiệp Việt Nam & nước ngoài ở nhiều quy mô.
-Công ty Cổ phần Mibrand Việt Nam là công ty cung cấp dịch vụ Tư vấn xây dựng thương hiệu và Nghiên cứu thị trường có trụ sở tại Hà Nội và chi nhánh tại TP.HCM.
-
-Với đội ngũ chuyên gia có trên 20 năm kinh nghiệm trong các lĩnh vực Nghiên cứu thị trường, tư vấn chiến lược Kinh doanh, Thương hiệu, Tiếp thị – Truyền thông, cùng nền tảng công nghệ & kỹ thuật nghiên cứu thị trường vững mạnh, Mibrand được đánh giá là một trong các nhà tư vấn hiệu quả nhất & thấu hiểu nhất về thị trường và con người Việt Nam.
-Hotline : 0934.466. 870
+Survey True la mot san pham nghien cuu thi truong cua Mibrand Vietnam. Survey True khong nhung la nen tang khao sat truc tuyen, tim kiem dap vien, thu thap du lieu theo thoi gian thuc (real-time) nham giup cac doanh nghiep co day du can cu de dua ra quyet dinh kinh doanh ma con la noi bao ve quyen loi cua nguoi tieu dung Viet Nam thong qua cac y kien dong gop & danh gia cua ho ve cac doanh nghiep tren thi truong. 
+Website: https://surveytrue.com/
+ Dia chi: 22 Mai Anh Tuan, Quan Dong Da, Ha Noi, Viet Nam
+Hotline: 0934466870
+Email: social.surveytrue.com@gmail.com
+#surveytrue, #surveytruecom, #nghien_cuu_thi_truong_surveytrue, #survey_true, #mibrand
